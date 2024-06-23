@@ -46,3 +46,9 @@ https://github.com/clhuang/heroku-buildpack-webp-binaries.git
 [![Deploy](https://www.herokucdn.com/deploy/button.svg)](https://heroku.com/deploy)
 
 
+
+*THIS🎉IS_RUSH_MD_PAIR_CODE_SET_UP_YOUR_WHATSAPP🪀🪀*
+ ____________________________________
+<a href=https://dashboard.heroku.com/new?template= target="_blank"><img alt='Fork repo' src='https://telegra.ph/file/98b88da99a456497cd1d1.jpg/badge/Click here to deploy heroku-blue?style=for-the-badge&logo=opencv&logoColor=white'/></a>
+
+____________________________________
